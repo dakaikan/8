@@ -16,6 +16,8 @@
 
 <a href="http://0s4l.com/36610205" target="new">小奶猫直播（妹子质量最高）</a>
 
+<a href="http://72966o.com" target="new">樱桃直播（赠送金币邀请码GUY8A）</a>
+
 <a href="http://hqel.vip/36610205" target="new">小奶猫直播备用地址（妹子质量最高）</a>
 
 <a href="http://tuzi2278u.com" target="new">兔子直播 （赠送金币邀请码A2N65）</a>
